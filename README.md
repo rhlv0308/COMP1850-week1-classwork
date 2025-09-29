@@ -1,1 +1,6 @@
-# COMP1850-week1-classwork
+# ALL ABOUT ME
+
+# Xiaoxi Yu
+
+
+
